@@ -1,10 +1,10 @@
 
       welcome !
- emi   ꕀ   7teen   
+ emi   ꕀ   she / he , 17   
 
-— cudds ok ! , w2i
+— , w2i
 
-♥︎ ➜ no home , alnst , hsr , naruto , jjk , pjsk (hmu if you like any of them)
+♥︎ ➜ bllk , no home , alnst , hsr , naruto , jjk , pjsk (hmu if you like any of them)
 
 ⪩⪨ sign ata !! teehee
 
