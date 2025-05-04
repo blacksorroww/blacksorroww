@@ -14,7 +14,7 @@ dni weirdos!!
 ⠀
 ⠀
 
-heheh.... [megz](https://github.com/destroy-boys) was here too.. 👀
+heheh.... [megz](https://github.com/5uguru) was here too.. 👀
 
 <img src=https://i.postimg.cc/FH98Cy2f/IMG-20250325-025244-663.jpg width="190" height="200">⠀⠀<img src=https://i.postimg.cc/ZqNQCwNM/Untitled19-20250503234407.png width="190" height="200">
 
