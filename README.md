@@ -9,8 +9,6 @@
 ⪩⪨ sign ata !! teehee
 
 dni weirdos!! 
-
-![1000085342](https://github.com/user-attachments/assets/45c79efd-d648-487e-a09d-2a63d8ab6ced)
 ⠀
 ⠀
 
