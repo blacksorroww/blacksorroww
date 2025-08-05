@@ -1,14 +1,5 @@
 
-      welcome !
- emi   ꕀ   she / he , 17   
-
-— , w2i
-
-♥︎ ➜ bllk , no home , alnst , hsr , naruto , jjk , pjsk (hmu if you like any of them)
-
-⪩⪨ sign ata !! teehee
-
-dni weirdos!! 
+check my links lalala
 ⠀
 ⠀
 
