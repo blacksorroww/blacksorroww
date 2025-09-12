@@ -1,15 +1,1 @@
-
-check my links lalala
-⠀
-⠀
-
-heheh.... [megz](https://github.com/5uguru) was here too.. 👀
-
-<img src=https://i.postimg.cc/FH98Cy2f/IMG-20250325-025244-663.jpg width="190" height="200">⠀⠀<img src=https://i.postimg.cc/ZqNQCwNM/Untitled19-20250503234407.png width="190" height="200">
-
-OH MY GOD. MEGZ. 
-guys GUYS THIS IS OUT OF CONTEXT
-
-YOU CAN NEEVVVAAAAAARRRR ESCAPE SAYGEXBOSS. NEVER.
-
-ok megz out! ^__^
+![79669850105900f971365b964b41185a(1)](https://github.com/user-attachments/assets/69356a31-70dc-464e-a9e6-8b5e99e25c54)
