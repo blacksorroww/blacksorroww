@@ -5,7 +5,7 @@
 
 ![1000114033](https://github.com/user-attachments/assets/3906f1e2-3be0-4508-940a-0bb4a92a8b63)
 
-[atabook](https://blacksorroww.atabook.org/)           ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎  [strawpage](https://kiiser.straw.page) 
+[atabook](https://blacksorroww.atabook.org/)           ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎  [carrd](https://mkaisers.carrd.co) 
 
 
 
