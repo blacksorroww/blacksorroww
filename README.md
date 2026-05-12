@@ -1,4 +1,5 @@
-![copy_1E910E06-F04C-4965-A9AE-644DF8A74655](https://github.com/user-attachments/assets/caf12909-91fb-4e64-8e5a-1d6e3c3e4457)
+<img width="500" height="318" alt="IMG_0699" src="https://github.com/user-attachments/assets/2686c82f-8e2f-44e0-b5b0-6bcd42a1df41" />
+
 
 
 
